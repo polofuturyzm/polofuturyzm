@@ -11,3 +11,12 @@ Przewidujemy stworzenie dalszych materiałów lepiej wyjaśniających postulaty 
 Nasze działanie się tutaj kończy. Każdy tworzy własny polofuturyzm. Będziemy szczęśliwi, jeśli zobaczymy klony, kopie i mutacje polofuturyzmu. 
 
 --Spółdzielnia Polofuturystyczna
+
+
+Dyskusje:
+https://www.reddit.com/r/polofuturyzm/
+https://twitter.com/polofuturyzm
+
+Kontakt:
+polofuturyzm@outlook.com
+polofuturyzm@gmail.com
