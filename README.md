@@ -1,6 +1,10 @@
 # polofuturyzm
 
 
+Dear anglophones and English speakers,
+we've uploaded a translation of the programme on github. Please give us a notice if you see any typos or other language related mistakes. Write to us if you have any additional questions.
+
+
 Traktujemy github jako pierwsze miejsce do publikowania informacji o polofuturyźmie.
 Program polofuturyzmu zawiera najważniejsze informacje
 
